@@ -1,7 +1,7 @@
 188betct Com
 ===================================
 
-188bet - Nhà cái uy tín hàng đầu Việt Nam chuyên cung cấp sản phẩm cá cược thể thao, Casino, lô đề online.
+`188bet/ <https://188betct.com/>`_ - Nhà cái uy tín hàng đầu Việt Nam chuyên cung cấp sản phẩm cá cược thể thao, Casino, lô đề online.
 
 Thông tin liên hệ:
 
